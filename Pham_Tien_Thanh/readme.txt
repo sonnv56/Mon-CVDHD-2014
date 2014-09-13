@@ -1,1 +1,0 @@
-Pham Tien Thanh
